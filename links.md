@@ -6,4 +6,9 @@ https://www.youtube.com/watch?v=5MR6B1jvUg4 <br>
 
 electronic
 ---------------
-https://www.youtube.com/watch?v=PtbnrTQDsfY
+https://www.youtube.com/watch?v=y8EiMoLYYbY <br>
+https://www.youtube.com/watch?v=nIBV2exYCU0 <br>
+https://www.youtube.com/watch?v=PtbnrTQDsfY <br>
+https://www.youtube.com/watch?v=6uMOl8UEzrE&t=2s <br>
+https://www.youtube.com/watch?v=M-dG02VfPHQ <br>
+
