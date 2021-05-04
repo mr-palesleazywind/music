@@ -23,6 +23,15 @@ https://www.youtube.com/watch?v=daSid6Lh9Vs&list=RDMMeLtnhsLwSZE&index=8 <br>
 https://www.youtube.com/watch?v=IM_7jpt1Ht8&list=RDMMeLtnhsLwSZE&index=4 <br>
 https://www.youtube.com/watch?v=-i18ovDPyTE&list=PL6C174385E1ADACD8 <br>
 https://www.youtube.com/watch?v=ulJvxfwe7Ts <br>
+https://www.youtube.com/watch?v=pfdjXwcVBuo <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
  <br>
  <br>
 
@@ -35,6 +44,10 @@ https://www.youtube.com/watch?v=FsaCbGx3RkQ&list=PL6C174385E1ADACD8&index=5 <br>
 https://www.youtube.com/watch?v=ALsHox5sYCk <br>
  <br>
  <br>
+ <br>
+ <br>
+ <br>
+ <br>
 
 
 sets
@@ -42,6 +55,12 @@ sets
 https://www.youtube.com/watch?v=BuQn1__xXGs <br>
 https://www.youtube.com/watch?v=ELUd6u1v-DM&list=PLZnUwemesMKRT9ckwbeiuRnplKBakt3wd&index=34 <br>
 https://www.youtube.com/watch?v=OIp9mXuw1LY&list=RDOIp9mXuw1LY&start_radio=1&t=76 <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
  <br>
  <br>
 
