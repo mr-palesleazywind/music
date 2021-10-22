@@ -1,4 +1,4 @@
-"Blind Test // 2000s Techno" episode 19 <br>
+Blind Test // 2000s Techno episode 19 <br>
 <br>
 lter ego - betty ford <br>
 https://www.youtube.com/watch?v=lD51yJAET3E <br>
@@ -12,7 +12,7 @@ ben clock subzero <br>
 https://www.youtube.com/watch?v=5IrHzrg4qdQ <br>
 <br>
 
-"Blind Test // 90s Techno" episode 13 <br>
+Blind Test // 90s Techno episode 13 <br>
 <br>
 https://www.youtube.com/watch?v=6UxcPuFaNAQ&t=129s <br>
 Johannes Heil Paranoid Dancer <br>
